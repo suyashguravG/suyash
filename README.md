@@ -1,1 +1,12 @@
 # suyash
+fjgkgj
+ruis
+
+
+jIRJGJLLEJTJW
+LEJEAFNDF9T
+ETESSDNGET
+NSDNIJIT
+
+KRJ
+oj
